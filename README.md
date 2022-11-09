@@ -1,7 +1,7 @@
 
 # LinkList
 
-[Visit Now]( adityawaghmare.in) 🚀
+[Visit Now]( http://adityawaghmare.in/) 🚀
 
 
 
