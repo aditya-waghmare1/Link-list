@@ -1,7 +1,7 @@
 
 # LinkList
 
-[Visit Now]( https://adityavw2003.github.io/Link-list/) 🚀
+[Visit Now]( adityawaghmare.in) 🚀
 
 
 
